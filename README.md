@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @darkbroe
+- 👀 I’m interested in coding,enterprenurship
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to work with you  
+- 📫 to reach me contact me on my insta id @darkbroe
